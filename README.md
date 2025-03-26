@@ -7,7 +7,7 @@ Here is a place for likeminded students to assist eachother and share their idea
 
 ## Current Collaborators - Please Enter Your Name Here
 - Triston White
-
+- Edwin Rios 
 
 
 
